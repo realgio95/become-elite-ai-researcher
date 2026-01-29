@@ -47,4 +47,5 @@ Ready to take your AI research journey to the next level? Join the **[Become AI 
 - Community support from fellow researchers
 - Exclusive content and updates
 
-**Get a 7-day free trial if you join now!** → [Join here](https://www.skool.com/become-ai-researcher-2669/about)
+## Follow along
+https://youtu.be/wu8npoU37cI
